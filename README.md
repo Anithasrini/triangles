@@ -2,7 +2,7 @@
 
 #### January 11, 2016
 
-#### By  and Jeffrey Ruder
+#### By  Anitha Srini and Jeffrey Ruder
 
 ## Description
 
